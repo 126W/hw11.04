@@ -8,6 +8,8 @@
 
 ### Задание 2
 
+![image](https://user-images.githubusercontent.com/122415129/232305392-5d815179-51c6-4ef3-9fb6-c0deac1437b8.png)
+![image](https://user-images.githubusercontent.com/122415129/232309506-a9957ba4-8b31-4113-936a-e30df6a4e6b8.png)
 
 ---
 
