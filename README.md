@@ -15,6 +15,10 @@
 
 ### Задание 3
 
+![image](https://user-images.githubusercontent.com/122415129/232323326-d41627a3-f177-42b3-8f9d-2df374eb92a8.png)
+
+![image](https://user-images.githubusercontent.com/122415129/232320516-abe7e7fd-9d9b-42eb-88a5-f2717e149cd4.png)
+
 
 ---
 
